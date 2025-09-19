@@ -1,4 +1,4 @@
-Privacy Policy for Work Regista
+Privacy Policy
 Effective Date: September 19, 2025
 
 GreenHealth Technologies operates the Work Regista mobile application (the “App”), a workers’ attendance tracking and management system. We are committed to protecting your privacy and ensuring the security of your personal information.
